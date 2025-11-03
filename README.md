@@ -1,5 +1,5 @@
 #  About Me:
-  SFU Engineering Science<br>  TNTN Robotics Founding Member https://tntnvex.com/ <br>
+  SFU Systems Engineering<br>  TNTN Robotics Founding Member https://tntnvex.com/ <br>
 
 
 ## 🌐 Socials:
